@@ -38,6 +38,6 @@ Uygulanacak Hukuk ve Yetkili Mahkeme
 Bu Gizlilik ve Kişisel Verilerin Korunması Politikası, Türkiye Cumhuriyeti kanunlarına tabidir. Politikanın uygulanmasından doğabilecek uyuşmazlıkların çözümünde Eskişehir Merkez Mahkeme ve İcra Daireleri yetkilidir.
 
 İletişim İzni
-Bu politikayı kabul etmekle birlikte, tarafınıza çeşitli avantajların sağlanması ve size özel tanıtım, kampanya, promosyon, anket veya benzeri bilgilendirmelerin; telefon, SMS, e-posta veya mobil bildirim yoluyla gönderilmesine izin vermiş sayılırsınız. İletişim tercihleriniz her zaman uygulama içinden veya LiMobileofficial@gmail.com adresinden değiştirilebilir.
+Bu politikayı kabul etmekle birlikte, tarafınıza çeşitli avantajların sağlanması ve size özel tanıtım, kampanya, promosyon, anket veya benzeri bilgilendirmelerin; telefon, SMS, e-posta veya mobil bildirim yoluyla gönderilmesine izin vermiş sayılırsınız. İletişim tercihleriniz her zaman uygulama içinden veya limobileofficial@gmail.com adresinden değiştirilebilir.
 
 LiMobile Technology E-posta: limobileofficial@gmail.com © 2025 Tüm hakları saklıdır.
